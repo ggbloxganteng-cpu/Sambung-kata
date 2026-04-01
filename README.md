@@ -1,2 +1,0 @@
-# Sambung-kata
-Gitulah pokoknya 
